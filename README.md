@@ -8,3 +8,6 @@
 <h2><a href="http://gonorroida.club/como-surgiu-gonorroida/">Como Surgiu Gonorroida</a></h2>
 
 <h2><a href="http://gonorroida.club/como-pega-gonorroida/">Como Contrair Gonorroida</a></h2>
+
+<h2><a href="http://gonorroida.club/tratamento-para-gonorroida/">Tratamento para Gonorroida</a></h2>
+
