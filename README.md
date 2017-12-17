@@ -11,3 +11,4 @@
 
 <h2><a href="http://gonorroida.club/tratamento-para-gonorroida/">Tratamento para Gonorroida</a></h2>
 
+<h2><a href="http://gonorroida.club/surto-da-gonorroida-no-carnaval-2018/">Surto da gonorroida no Carnaval 2018</a></h2>
